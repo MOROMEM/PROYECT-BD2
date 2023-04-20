@@ -1,1 +1,1 @@
-Esta línea se ha hecho desde el repositorio remoto del culo gordos
+Esta línea se ha hecho desde el repositorio remoto de Eduardo Lostal
