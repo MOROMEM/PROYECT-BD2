@@ -1,1 +1,2 @@
-Esta línea se ha hecho desde el repositorio remoto de Eduardo Lostal
+Trabajo realizado por Sergio MOro
+
